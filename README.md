@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Tiago Pontes
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning pyhton
+- 💞️ I’m looking to collaborate on anything that makes me learn more things
+- 📫 How to reach me instagram _tiago_pontes_
